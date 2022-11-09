@@ -1,2 +1,2 @@
 # khitan
- undangan khitanan niza,
+ undangan khitanan nizam,
